@@ -1,1 +1,1 @@
-# tiki.github.io
+nigga your not funny
